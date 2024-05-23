@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **unae30@gmail.com**
 
-- ⚡ Fun fact **I love music, tech and art.**
+- ⚡ Fun fact **I love tech, music and art.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
